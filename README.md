@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @imukuka
+- 👀 I’m interested in knowing more about products and services and making money
+- 🌱 I’m currently working 
+- 💞️ I’m looking to collaborate on brands
+- 📫 How to reach me kusikusiyo@yahoo.com
